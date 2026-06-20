@@ -1,6 +1,6 @@
 # KHOA_HOC_DU_LIEU
 # BTVN_TINH DIEM TB
-# LINK YOUTUBE:https://youtu.be/eRuTWlQ6caQ
+# LINK YOUTUBE:[https://youtu.be/eRuTWlQ6caQ](https://youtu.be/oODC14r83_0)
 HẦU THỊ THANH HUYỀN
 K225480106027
 K58KTP
